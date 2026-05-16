@@ -3,9 +3,7 @@
 **Edgenuity Hack, Automatically Complete Exams, Automatically Complete Assignments**
 
 ---
-
-https://github.com/user-attachments/assets/d60ff57b-10bb-4bc3-ab48-813e948b3528
-
+<img width="800" height="450" alt="revoltshowcase" src="https://github.com/user-attachments/assets/e244d58f-7f33-40d6-91d9-eb4af6b83590" />
 
 [**10,000+ Users • 1,000+ Reviews**](https://www.trustpilot.com/review/revolt.ly?stars=5)
 
