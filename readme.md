@@ -4,10 +4,7 @@
 
 ---
 
-
-
-https://github.com/user-attachments/assets/46a884c3-f34f-445c-8001-7825523c474c
-
+https://github.com/user-attachments/assets/d60ff57b-10bb-4bc3-ab48-813e948b3528
 
 
 [**10,000+ Users • 1,000+ Reviews**](https://www.trustpilot.com/review/revolt.ly?stars=5)
